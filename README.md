@@ -5,7 +5,7 @@
 
 * 날짜 : 2021년 4월 17일 12시 00분
 * 장소 : 논현2동 성당
-* 청첩장 url : https://andersonchoi.github.io/wedding-card/
+* 청첩장 url : https://sangrho.github.io/web/docs/
 
 ## 축하의 말
 
