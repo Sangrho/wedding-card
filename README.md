@@ -66,5 +66,7 @@
 ### 김시온
 상노님 드디어 결혼식이라니! 축하드립니다 ㅎㅎ 두분 항상 행복하세요 :)
 
+### 小野博紀(Ono Hiroki)
+Congratulations on your wedding! May you live happily ever after!
 
 
