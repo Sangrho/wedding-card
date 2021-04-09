@@ -92,3 +92,6 @@ Congratulations on your wedding! May you live happily ever after!
 
 ### 이현수
 형님 결혼 축하드립니다!! 학교부터 이어진 인연이 회사까지.. 신기하네요. 행복하시기 바랍니다!!
+
+### 백준선
+항상 행복만 가득하자!!! 진심으로 축하해 ㅎㅎ 웰컴투 유부월드
